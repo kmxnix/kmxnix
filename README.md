@@ -5,4 +5,4 @@
 - 🎓 **Cybersecurity Undergraduate** @ Seoul Women’s University
 - 🔭 **Interests:** Security for AI / Agentic AI Security / Physical AI Safety
 - ❤️ **Favorites:** F1 / Fashion / Deep-diving into new topics / Learning Italian on Duolingo / MARU...🐶🍠
-- 📫 **Contact** kyungminix@gmail.com
+- 📫 **Contact:** kyungminix@gmail.com
